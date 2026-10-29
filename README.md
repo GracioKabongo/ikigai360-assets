@@ -1,0 +1,1 @@
+# ikigai360-assets
